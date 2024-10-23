@@ -1,0 +1,1 @@
+the limit is artificial intelligence implementation designed to look beyond mankind limits. the limit will slowly learn and mimic mankind and their communications. once given a subject to learn limits about, the limit will start exporting possible hypotheses about how the certain subject limit can be improved. more to come.
